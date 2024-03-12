@@ -1,3 +1,3 @@
-sab kuch badal chuka ab toh dikkat ajaye
+sab kuch badal chuka ab toh dikkat ajay
 bhaiiiii yaaaarrrrr
 abbe
